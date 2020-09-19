@@ -8,6 +8,8 @@
 * MS Office (advanced user), QuickBooks (Introduction to QuickBooks Online: for Accountants), data entry skills, strong work ethic, time management, handling pressure, collaboration, problem solving.
 
 ### Experience
+#### _WELLESTEIN&ASSOCIATES_
+May 2020 - September 2020, New York
 #### _Promsvyazbank_ 
 December 2016 — July 2019, Moscow, www.psbank.ru
 * Chief credit analyst
